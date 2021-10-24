@@ -34,6 +34,7 @@
 ![幻灯片28](https://user-images.githubusercontent.com/86972384/138582423-32e30b0c-8e0a-40e1-8cc8-8b4ba5700f48.JPG)
 ![幻灯片29](https://user-images.githubusercontent.com/86972384/138582426-1fe4a3dd-179b-40cb-983d-70c082e74767.JPG)
 ![幻灯片30](https://user-images.githubusercontent.com/86972384/138582427-0fce1d7e-47f6-4e3a-bf06-fe1a288fb7fc.JPG)
-———————————————————
+
+### ———————————————————
 
 ## [主日证道汇总](https://nccchurch.github.io/Sermons/)
